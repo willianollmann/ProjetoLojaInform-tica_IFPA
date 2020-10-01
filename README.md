@@ -1,0 +1,1 @@
+# ProjetoLojaInform-tica_IFPA
